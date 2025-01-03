@@ -11,3 +11,6 @@ From the many news reports in the media, we sometimes think that many countries 
 - Freedom of Choice
 - Generosity of Its People
 - Corruption Perspective on Its Nation
+
+References :
+https://wordpress.com/post/fredyfirmansyah107.wordpress.com/46
